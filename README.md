@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GAGM760804MNLLNY01
+GAGM760804MNLLNY01
